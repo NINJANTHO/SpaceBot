@@ -1,3 +1,13 @@
-# SpaceBot
+# Space
 
-Bot skid de boritoz aka le skiddos de discord 
+
+---
+Pue la merde
+
+````
+leaked by wez  💔
+````
+
+- Besoin d'aide pour lancer le bot ?: https://discord.gg/WhaSMszfxP
+
+- Bye bye swito (boritoz) 🚷🚷
